@@ -1,0 +1,1 @@
+# Traditional-method-of-estimating-Expected-Credit-Loss
